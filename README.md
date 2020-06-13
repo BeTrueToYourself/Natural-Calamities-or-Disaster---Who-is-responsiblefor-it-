@@ -1,0 +1,2 @@
+# Natural-Calamities-or-Disaster---Who-is-responsiblefor-it-
+It is a geological process that effect every human on the Earth all the time, but are most noticeable when they cause loss of life or property. If the process that poses the occurrence of hazard and destroys human life or property, then we say that disaster has occurred.   A natural disaster is defined by the UN as: “the consequences of events triggered by natural hazards that overwhelm local response capacity and seriously affect the social and economic development of a region.
